@@ -1,1 +1,0 @@
-# vincentbharata.github.io
